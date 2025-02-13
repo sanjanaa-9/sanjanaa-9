@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Hey!
 I'm currently studying.
 
 
